@@ -1,0 +1,5 @@
+![mongo_1](https://github.com/user-attachments/assets/b3645b63-fe57-4ee7-bbdb-fb04743616d2)
+![mongo_2](https://github.com/user-attachments/assets/898660d7-79e8-43ee-a1bb-f03b5df3e1ff)
+![mongo_3](https://github.com/user-attachments/assets/4e918108-bcb3-4201-b7ba-384ec7e9b2de)
+![mongo_4](https://github.com/user-attachments/assets/516654d3-9af0-4d18-8349-87e2e7edc709)
+![mongo_5](https://github.com/user-attachments/assets/ddef39b4-0ca4-44f8-b888-d7a927e6dc3e)
